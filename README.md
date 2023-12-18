@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Wolfit12
-- 👀 I’m interested in Videogames.
+- 👀 I’m interested in Videogames & Animation.
 - 📫 How to reach me: wolfit12@gmail.com
 
 <!---
